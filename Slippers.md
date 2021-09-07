@@ -1,0 +1,1 @@
+![Slippers](C:\Users\user\Pictures\픽셀아트 저장\Slippers.png)
