@@ -1,0 +1,1 @@
+![gradation](C:\Users\user\Pictures\픽셀아트 저장\gradation.png)
