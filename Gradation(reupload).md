@@ -1,0 +1,1 @@
+![gradation](https://user-images.githubusercontent.com/81292141/132800520-54815d1d-09e4-4101-a5c5-ffa074cbdeae.png)
