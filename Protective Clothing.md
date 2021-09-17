@@ -1,0 +1,1 @@
+![Protective clothing](https://user-images.githubusercontent.com/81292141/133779218-933e5162-73b4-4ff0-9eb3-19662dd3fbcb.png)
