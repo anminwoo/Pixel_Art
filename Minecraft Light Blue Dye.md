@@ -1,0 +1,1 @@
+![Minecraft Light Blue Dye](https://user-images.githubusercontent.com/81292141/141681028-1ceda571-f6ee-4de9-a0cb-f18e319d8205.png)
