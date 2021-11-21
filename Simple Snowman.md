@@ -1,0 +1,1 @@
+![Simple Snowman](https://user-images.githubusercontent.com/81292141/142766496-fa3719ed-736e-4b92-b1e5-a2658fe3a506.png)
