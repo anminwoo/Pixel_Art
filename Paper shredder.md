@@ -1,0 +1,1 @@
+![Paper shredder](https://user-images.githubusercontent.com/81292141/143444077-90c7fbe5-2850-44e5-907d-9a1b18b815ff.gif)
